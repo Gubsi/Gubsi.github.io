@@ -9,3 +9,6 @@ Seine bekanntesten Werke, die Escher nahezu den Status eines Popstars einbrachte
 * Drawing Hands
 * Metamorphose I-III
 
+> Ich glaube, um solche Bilder zu machen wie ich,
+> muss mann eigentlich nur den sehr sehr starken Wunsch haben,
+> seine Arbeit gut zu machen.
