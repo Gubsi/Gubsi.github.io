@@ -12,3 +12,6 @@ Seine bekanntesten Werke, die Escher nahezu den Status eines Popstars einbrachte
 > Ich glaube, um solche Bilder zu machen wie ich,
 > muss mann eigentlich nur den sehr sehr starken Wunsch haben,
 > seine Arbeit gut zu machen.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/8f/Denhaag_relief_houtrustweg2.jpg/640px-Denhaag_relief_houtrustweg2.jpg"/>
+
